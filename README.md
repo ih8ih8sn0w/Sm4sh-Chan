@@ -1,1 +1,1 @@
-Just random Smash-chan shits
+Lets make this bot great again™
